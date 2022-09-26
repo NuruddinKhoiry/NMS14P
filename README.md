@@ -1,1 +1,1 @@
-# NMS14P
+# Methylobacterium sp. NMS14P
